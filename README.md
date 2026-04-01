@@ -1,0 +1,2 @@
+# Xasan
+Maʼlumotlar sahifasi
